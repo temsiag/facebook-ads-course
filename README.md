@@ -94,4 +94,3 @@ If you would like to require your business to a subsequent level, then this is o
 
 👉Get the Free Bonus here: 👇
 ▶️  https://fvrr.co/3kgIb07
-"Take This Course" to start out growing your business with Facebook Ads!
